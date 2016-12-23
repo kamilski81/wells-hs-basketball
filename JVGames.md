@@ -1,7 +1,7 @@
 DRW College Prep 41 @ Wells 39 - 12/20/2016
 Stats - http://wellsbasketball.com/jvdrw41wellsjv39_report.html
 Shot Chart - http://wellsbasketball.com/jvdrw41wellsjv39_shot_chart.png
-Video - 
+Video - https://youtu.be/d_mdLtVlpIE
 
 Douglass  @ Wells  - 12/16/2016
 Stats - http://wellsbasketball.com/jvdouglass26wellsjv30_report.html
