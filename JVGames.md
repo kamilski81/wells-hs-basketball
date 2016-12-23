@@ -3,7 +3,7 @@ Stats - http://wellsbasketball.com/jvdrw41wellsjv39_report.html
 Shot Chart - http://wellsbasketball.com/jvdrw41wellsjv39_shot_chart.png
 Video - https://youtu.be/d_mdLtVlpIE
 
-Douglass  @ Wells  - 12/16/2016
+Douglass 26 @ Wells 30 - 12/16/2016
 Stats - http://wellsbasketball.com/jvdouglass26wellsjv30_report.html
 Shot Chart - http://wellsbasketball.com/jvdouglass26wellsjv30_shot_chart.png
 Video - https://youtu.be/5ow9WabYI7g
